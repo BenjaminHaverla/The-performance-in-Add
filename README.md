@@ -11,6 +11,13 @@ We had to be flexible because we required good weather, and during that time, I 
 
 ![text description](Images/Performance_3.png)
 
+# Final Results:
+If you would like to view my performance in the ad, don't hesitate to click the following links:
+
+### [Ad performance 1](https://www.youtube.com/watch?v=N6iNbw7amuk)
+### [Ad performance 2](https://www.youtube.com/watch?v=PuG0568k_2E)
+### [Ad performance 3](https://www.youtube.com/watch?v=VnI_E2yEMJE)
+
 -------------------------------------------------------------
 
 # BACK TO THE...
